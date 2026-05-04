@@ -25,7 +25,7 @@ The platform serves three distinct user roles: customers who submit complaints, 
 
 **Team**
 
-Michael M. Demissie, Blessing, Andy Gomez, Tony, Chidochashe, Tino, Ncee
+Michael M. Demissie, Blessing, Andy Gomez, Tony, Mimosa Chidochashe, Tino, Ncee
 
 ---
 
